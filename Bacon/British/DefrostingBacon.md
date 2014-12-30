@@ -1,11 +1,11 @@
 # Defrosting Bacon
 ## Getting bacon quicker
 
-There are two methods that seem to work for this task, but both carry the risk of partially cooking one's bacon. These methods are in no way guaranteed or scientifically tested; proceed with caution, or just leave you bacon in the fridge the night before.
+There are three methods that seem to work for this task, but both carry the risk of partially cooking one's bacon. These methods are in no way guaranteed or scientifically tested; proceed with caution, or just leave your bacon in the fridge the night before.
 
 ### The microwave method
 
-1. Is the bacon in packaging
+1. Is the bacon in packaging?
 	- (yes) Remove the packaging
 	- (no) Continue
 2. Place the bacon on a microwavable plate
@@ -18,15 +18,15 @@ There are two methods that seem to work for this task, but both carry the risk o
 
 ### Hot water
 
-1. Is the bacon in packaging
+1. Is the bacon in packaging?
 	- (yes) Remove packaging
 	- (no) Continue
 2. Heat some water
 	- Not to boiling!
-3. Put hot water it in a bowl
+3. Put hot water in a bowl
 	- Be very careful!
-	- Metal bowls aren't advisable
-	- Bowl must be big enough to fit bacon
+	- Metal bowls conduct the water's heat well and may burn you; they are not advisable.
+	- Bowl must be big enough for the bacon to fit
 4. Put your bacon in the bowl
 	- If the water does not submerge the bacon
 		- Ignore if the bacon is floating
@@ -38,7 +38,7 @@ There are two methods that seem to work for this task, but both carry the risk o
 6. Do something with your bacon
 
 ### Defrosting in a Fridge
-> The advantage of this method lays in the fact that you run no risk of cooking your bacon or forgetting it out unrefridgerated.
+> The advantages of this method are that you run no risk of cooking your bacon or forgetting it entirely, outside the refrigerator.
 > The disadvantage is that it is slow
 
 1. Have foresight

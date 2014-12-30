@@ -15,7 +15,7 @@
 3. Turn on grill
 4. Place on grill
 5. Grill bacon
-	- Turn bacon half way through to more evenly cook both sides
+	- Turn bacon over when cooked halfway through to more both sides more evenly
 	- Until bacon is crispy
 6. Take bacon off grill
 	- Turn grill off!
