@@ -5,7 +5,7 @@
 * 2 C. Flower
 * 1/2 C. Powdered Sugar
 
->Cream the butter, add the flower and sugar to the mix. Press on the bottom of an un-greased
+>Cream the butter, add the flower and sugar to the mix. Press on the bottom of an ungreased
 9x13" pan. Bake at 350 degrees for 20 minutes
 
 ###Filling:
@@ -17,7 +17,7 @@
 * 1 tsp. baking powder
 * 1/4 C. flour
 
->Combine well beaten eggs, sugar, salt, and lemon juice. Mix baking powder and flour;
+>Combine well-beaten eggs, sugar, salt, and lemon juice. Mix baking powder and flour;
 add to egg mixture and mix. Spread on the hot baked crust layer. Bake at 350 degrees for 30
 minutes. Let cool and refrigerate (usually over night). Sprinkle with additional powdered 
 sugar. Cut into bars and serve. 
