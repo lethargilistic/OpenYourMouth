@@ -1,5 +1,5 @@
 # Fried bacon
-## The nice but unhealthy way to bacon
+## The nice, unhealthy way to make bacon
 
 ### Ingredients
 

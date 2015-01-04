@@ -51,14 +51,14 @@
 
 ###Cake
 
-1. Preheat oven to 350°F 
+1. Preheat oven to 350°F.
 
 2. Spray a 9-inch or baking pan or mold with nonstick spray. 
 
 3. In a medium bowl, mix together flour, baking powder, baking soda,
-    and salt 
+    and salt.
 
-4. Melt butter in In a large container 
+4. Melt butter in a large container.
 
 5. Whisk the butter and two sugars vigorously until any lumps are
     broken up. 
@@ -68,33 +68,33 @@
 7. Slowly mix in dry ingredients until no lumps remain and the batter
     is thick. 
 
-8. Slowly stir in sprinkles, being sure not mix the dough to much or
+8. Slowly stir in sprinkles, being sure not to mix the dough too much or
     the sprinkles will bleed their color into the dough. 
 
 9. Pour the batter into the baking pan or mold, cover loosely with
     greased aluminum foil and bake for 20 minutes. 
 
-10. Remove the tinfoil  and bake for 13-17 more minutes or until a
+10. Remove the tinfoil and bake for 13-17 more minutes, or until a
     toothpick inserted in the center comes out clean. 
 
-11. Allow to cool. 
+11. Allow it to cool. 
 
-12. Mix everything together with a spoon.  (Add a little more
-    milk/water if needed.) 
+12. Mix everything together with a spoon. (Add a little more
+    milk/water, if needed.) 
 
 ###Frosting
 
-1.  Mix everything together with a spoon until completely mixed.(Add a
-    little more milk if needed) 
+1.  Mix everything together with a spoon until completely mixed. (Add a
+    little more milk, if needed.) 
 
 2.  Spread evenly across the cake. 
 
 ###Decorating
 
-1.  Place yellow jujubes across the cake in a star like pattern. 
+1.  Place yellow jujubes across the cake in a star-like pattern. 
 
-2.  Sprinkle Pop Rocks on top of the icing evenly
+2.  Sprinkle Pop Rocks on top of the icing evenly.
 
-3.  Insert Sparklers and light when ready 
+3.  Insert Sparklers and light them when ready.
 
 **Enjoy!**

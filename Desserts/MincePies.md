@@ -9,6 +9,7 @@
 - 1 lb mincemeat 
 - 1-2 oz of brandy or rum - if desired 
 - 1 Beaten egg, to glaze 
+- 3-4 tbsp iced water
 
 ##Hardware
 
@@ -16,22 +17,22 @@
 
 ##Directions
 
-Pre-heat oven to 400 degrees.
+1. Pre-heat oven to 400 degrees.
 
-Cut the butter into cubes. Sift the flour into a mixing bowl. Add the butter
+2. Cut the butter into cubes. Sift the flour into a mixing bowl. Add the butter
 and, using your fingertips, rub the butter into the flour until it resembles
 fine breadcrumbs. 
 
-Stir in the powdered sugar. 
+3. Stir in the powdered sugar. 
 
-Make a well in the center, stir in the egg yolk and about 3-4 tbsp iced water
-o make a soft but not sticky dough. Knead lightly to form a smooth dough, and
+4. Make a well in the center and stir in the egg yolk and about 3-4 tbsp iced water
+to make a dough that is soft, but not sticky. Knead lightly to form a smooth dough, and
 then chill dough for 30 minutes.
 
-Grease the muffin tins with butter so that the inside of each cup is well 
+5. Grease the muffin tins with butter so that the inside of each cup is well 
 covered.
 
-On a floured surface, roll out two thirds of the dough and cut out 30 rounds
+6. On a floured surface, roll out two thirds of the dough and cut out 30 rounds
 using a 2-inch fluted cutter. Place each round in the muffin tins. Fill with
 mincemeat. If desired, mix some of the brandy or rum, to taste, into the mincemeat.
 Mixture will be a little looser. Re-roll remaining pastry and trimmings and cut

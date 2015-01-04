@@ -18,6 +18,6 @@
 >Melt the butter in the microwave, that takes less time. 
 
 ###Bake it!
-Put your dough in a cup, on a plate, in a shoe. it doesn't matter. 
-cook it for as long as you want. but it finishes FAST, so keep you're eye on it. 
-also the dough puffs up to about twice the size when cooked. 
+Put your dough in a cup, on a plate, in a shoe. It doesn't matter. 
+Cook it for as long as you want, but it finishes FAST. Keep you're eye on it. 
+Also, the dough puffs up to about twice the original size when cooked. 

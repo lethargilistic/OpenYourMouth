@@ -22,4 +22,4 @@
 
 ###Comments
 
-I find that for one person, a mixture of around 3 eggs, 2 potatoes, and a couple of sausages makes for a good mixture. 
+I find that around 3 eggs, 2 potatoes, and a couple of sausages makes a good mixture for one person.
