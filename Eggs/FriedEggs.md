@@ -15,7 +15,7 @@
 3. Heat the pan
 4. Crack egg/s into the pan
 5. Let them fry
-6. When they are fully cook take them out of the pan
+6. When they are fully cooked, take them out of the pan
 	- If you ran out of space in step 4 you can fry more eggs now
 		- You might need to add more oil
 7. Eat
