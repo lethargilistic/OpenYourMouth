@@ -1,13 +1,13 @@
 #Simple Spatchcock Turkey From The Grill
 
 *Prep Time: 15 min*<br>
-*Cook Time: 1.5hrs +/-*
+*Cook Time: 1.5 hrs +/-*
 
 
 ##Ingredients:  
 
 * Whole Turkey (recommend 12 - 14 lbs)
-* Two tablespoons olive oil
+* Two tbsp olive oil
 * Shaker of poultry seasoning of choice. *Original author prefers Tony Chachere's Original Creole Seasoning.*
 
 
@@ -17,7 +17,7 @@
 
 2. Place turkey on cutting board, spine up. Take a heavy set of kitchen shears and cut down either side of spine, until spine is completely removed.
 
-3. Flip turkey over and put both hands on center of breastbone, just like you were trying to give turkey CPR. Give a quick, decisive downward press with both arms and you'll hear and feel the breastbone snap. The turkey should now lay almost flat.
+3. Flip turkey over and put both hands on center of breastbone, as if you were trying to give turkey CPR. Give a quick, decisive downward press with both arms and you'll hear and feel the breastbone snap. The turkey should now lay almost flat.
 
 4. Coat both sides of turkey with olive oil and poultry seasoning and set aside.
 
@@ -29,11 +29,11 @@
 
 8. Put lid on grill and do not remove for one hour. 
 
-9. At one hour mark: remove lid, put on a fresh chunk of hickory and install your remote thermometer's probe into the thickest part of the turkey's breast. Set receiver unit to 155 degrees or closest temp underneath that as possible and keep it close to you.
+9. Remove lid, put on a fresh chunk of hickory, and install your remote thermometer's probe into the thickest part of the turkey's breast. Set receiver unit to 155 degrees or closest temp underneath that as possible and keep it close to you.
 
 10. At 155 degrees, remove turkey from grill. Allow turkey to rest, undisturbed, for 15 minutes before carving. This will allow turkey to finish coming up to temperature and the juices will redistribute internally.
 
-11. Carve and serve your delicious, moist, smokey turkey. Then listen to everyone rave about how great it is.
+11. Carve and serve your delicious, moist, smokey turkey. Listen to everyone rave about how great it is.
 
 `Note 1: Original author uses a standard 22" Weber Kettle Grill.`
 
